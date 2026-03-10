@@ -1,2 +1,1 @@
-# info
-information about Nexora
+coming soon
