@@ -1,0 +1,6 @@
+[nbt](https://nothingbuttyler.github.io)
+[nbt movies](https://nothingbuttylermovies.github.io)
+[nexoraid](https://nexoraid.github.io)
+etc
+
+[discord](https://click.discord.com/ls/click?upn=u001.a0NJ38DJJG1sulNx5wS1jjasHPOV5MgsCNLIOUybEqgv-2F76hJtte7st2YGE6B-2FX1QKQxNPVZR9PNZAAw4CQoNCOaGTd79ic-2FAU05Irh2SJkWmrfKWasubv5P2zknsqmHDwBjZ0HqgYT9WhfKI0c3F46skCvHHvmjLzYw-2FT2j94ziXIKH3QVUxDhSfvRbnSEnZgC9_SAipNz9p-2FCU33MzZTFp704WVcxauoVx5cIj6Oe943atZq667xNUJeKBdV6om79hn0U7cgjrg4rVlis2n3-2BNE7chhadCQZlSXDjRamSfWAoKR2l5-2BfYyX8JR-2BbkeSRIUz-2BIKTVGPhu8AmX3ImjE0h7SxHR33jDoP8axdZbNSa95UE6EjKgMZFFq8ethxk-2F6vLTJOHWyKBXJofR6yGQN68d6uiwq7ya0yHhzC24T2qlvWqwyrZQcmTqv0wpPZpS2FYuN57x7CtzxGBVAfTfR1vkg-3D-3D)
